@@ -1,0 +1,2 @@
+# adminInventarios1211
+adminInventarios12112020
